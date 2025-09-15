@@ -10,3 +10,9 @@ Computer science can be valuable in many ways like I could use it for building a
 If I would want to sell things on a personel website for my itmes specificlly Im going to need to make it.
 Art wise for computer science can help with like managment of varius items like money, inventory, stocks, and updates.
 With all the things I can do with knowing computer science can really help me with futur things that I want to do.
+# September 15, 2025
+I think AI sould be used to help people in education, health, safety, or the community.
+AI has been being used for a lot of bad things are dumb things.
+People use AI for cheating on stuff, using it for dumb reasons, and just making content that doesn't need to be made.
+AI can be really useful for education for like, explaining things, grading work, making assignments, other things for electives but AI has been used for cheating so much that all schools ban using AI.
+The reason I listed that could be useful from AI are all good things to come out of AI.
