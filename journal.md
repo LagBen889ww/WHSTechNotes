@@ -16,3 +16,10 @@ AI has been being used for a lot of bad things are dumb things.
 People use AI for cheating on stuff, using it for dumb reasons, and just making content that doesn't need to be made.
 AI can be really useful for education for like, explaining things, grading work, making assignments, other things for electives but AI has been used for cheating so much that all schools ban using AI.
 The reason I listed that could be useful from AI are all good things to come out of AI.
+# September 22, 2025
+In my opinion working in a virtual store could probally one of the worst ideas ive ever heard.
+Working virtually losses so many things you need to learn in an actual work inviroment like social/people skills, communication improvment, and simply just need that experience.
+Also when you want to get a real job in person and you have a resume and it lists that you worked at roblox ikea, virtual they might not think thats a proper skill.
+I also think that working in an actual work in enviroment is needed no matter the circumstance because you need to have that skill.
+If they start making more virtual jobs then most people are gonna wanna do that then a actual real job that needs people to be in like hospitals, fire fighters, police, mechanics, and many more because their all needed in the world
+With this all being said I think virtual work places shoukd not be a thing especially for real money.
