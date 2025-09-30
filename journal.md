@@ -23,3 +23,5 @@ Also when you want to get a real job in person and you have a resume and it list
 I also think that working in an actual work in enviroment is needed no matter the circumstance because you need to have that skill.
 If they start making more virtual jobs then most people are gonna wanna do that then a actual real job that needs people to be in like hospitals, fire fighters, police, mechanics, and many more because their all needed in the world
 With this all being said I think virtual work places shoukd not be a thing especially for real money.
+# September 30, 2025
+When students say the phrase "67" their usally refers to a popular meme of a kid saying 67. During a basketball game a camera panned to the kid and said 67. Kids say in the hallway just to be funny but then some kids dont the its funny. Kids say it in a funny and unserious tone. I still like 67 but its been way to long.
