@@ -25,3 +25,5 @@ If they start making more virtual jobs then most people are gonna wanna do that 
 With this all being said I think virtual work places shoukd not be a thing especially for real money.
 # September 30, 2025
 When students say the phrase "67" their usally refers to a popular meme of a kid saying 67. During a basketball game a camera panned to the kid and said 67. Kids say in the hallway just to be funny but then some kids dont the its funny. Kids say it in a funny and unserious tone. I still like 67 but its been way to long.
+# October 6, 2025
+If i was in charge of a school I would definitly allow games in school, I would make it to where the last 15-20 minutes games are allowed. I think games shouldnt be a banned thing in school and im not just saying that because there nblocked now. I also think AI should very for what assignments its used on, I dont think AI should be used on major projocts or assignments. If you use AI on major things that should be a definate write up. I dont think any of these things should be banned/blocked same thing as phones, I dont see a reaosn for any of this to be gone.
