@@ -29,3 +29,9 @@ When students say the phrase "67" their usally refers to a popular meme of a kid
 If i was in charge of a school I would definitly allow games in school, I would make it to where the last 15-20 minutes games are allowed. I think games shouldnt be a banned thing in school and im not just saying that because there nblocked now. I also think AI should very for what assignments its used on, I dont think AI should be used on major projocts or assignments. If you use AI on major things that should be a definate write up. I dont think any of these things should be banned/blocked same thing as phones, I dont see a reaosn for any of this to be gone.
 # October 14, 2025
 My prompt was designed to list some popular AI sites to write prompts on and to explain how to write a prompt correctly. I also wrote to make it understandable so highschoolers can read it and understand it. This way it would be a lot easier to make and write AI prompts. I made it list AI websites so that people can find a easy way to find the website and not look for a random site that isnt reliable. I also had to list a very specific request to not make it an "inventation flyer" because the first time it made it into a inventation type flyer.
+# October 20, 2025
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin | second      | 91A     |
+| Hardeep  | third      | 61F     |
+| Marla    | first      | 35B     |
