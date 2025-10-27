@@ -35,3 +35,5 @@ My prompt was designed to list some popular AI sites to write prompts on and to 
 | Franklin | second      | 91A     |
 | Hardeep  | third      | 61F     |
 | Marla    | first      | 35B     |
+# October 27, 2025
+Technology can help before the disater helping people know where to go or help other people get in contect others. I don't know if technology would help during the hurricane due to it currently happening and could knock out the electrical/cell phone poles. Same thing eith after the hurricane I don't know if the poles would be out after all the damage. Some tools can help try to find missing people if any like a heat tracker.
