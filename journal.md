@@ -40,3 +40,5 @@ Technology can help before the disater helping people know where to go or help o
 I think families are more connected with technology during the holidays.
 Techology helps families connect more during the holidays so they can find out whos showing up during the holidays and plan out the day. I think technology makes the holidays better because it is easier to do things with others and good to have when trying to find/plan for the occasion. Yes holiday tech should respect privacy during the holidays and the things you do with families. 
 With all this being said, yes I think that technology is goodfor the holidays and makes them better.
+# November 17, 2025
+I am mostly excited about not having to come to school and do work. Thanksgiving break came fast this year and its gonna be cool that were not gonna be here. I am also excited for the food and to maybe see family during the holiday.
