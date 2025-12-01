@@ -42,3 +42,5 @@ Techology helps families connect more during the holidays so they can find out w
 With all this being said, yes I think that technology is goodfor the holidays and makes them better.
 # November 17, 2025
 I am mostly excited about not having to come to school and do work. Thanksgiving break came fast this year and its gonna be cool that were not gonna be here. I am also excited for the food and to maybe see family during the holiday.
+# December 1, 2025
+One real job that involes drones is being a photographer at like party's, weddings, events, or just in general. People use coding for the drones to make them do a specific action at a certisn time or other things like hieght or zoom. The average salary for a drone pilot in San Antonio, TX, varies by source, but generally falls between $50,000 and $68,000 annually. To be a commercial drone pilot in the U.S., you need a Remote Pilot Certificate from the FAA, which requires passing the Aeronautical Knowledge Exam. No I would not want to do this job in the future because I think the requirments are to much to fly a drone.
