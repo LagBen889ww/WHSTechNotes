@@ -48,3 +48,10 @@ One real job that involes drones is being a photographer at like party's, weddin
 I think it might fail to recognize the stop sign because its in a wierd position unlike normale ones. The camera, sensors, AI might face some legal actions for failing to recognize the sign. I would disign the car to be able to recognize any stop sign and and stop on it. I would make it to read the sign and actullay sensor the stop sign. I would aslo have the AI to sense the bus and anyone on it to where if it sees them it stops
 # December 15, 2025
 All I plan to do during the break is sleep and grind games all day so my break isn't that full. I also plan to watch the new episodes of stranger things on the holidays. Other then all that I dont have anything planned on the holidays.
+# January 6, 2026
+I used technology this past winter break by playing a lot of video games because that was basically my main part of break. I played a lot of Fortnite and after christmas I had gotten a steam deck and played a lot of Spiderman: Miles Morales. 
+I also used my phone to watch videos and edit videos, and I usally listen to videos while playing video games. Watching tv was also a big part of my break, I watched the Stranger Things finale episodes and a lot of anime. All the tech i used was just to have entertainment because I didn't really use any tech that was benificial to me unless the entertain me.
+# January 12, 2026
+Autcraft was made for the right to have a safe space on online games for the children that didnt have any safe place to go. The harm that could happen in a unmoderated online game are gonna be listed in the following. Bullying, Harrasment, 
+exclusion, child dangerment, inoppropriate actions, grooming and a lot more could potentially happen in these online game platforms. Autcraft design on making a safe community for the kids that need it was a genius idea and perfectly planned.
+The developers choices in the rules, moderation tools, reporting systems affect user experience by making it easier for them to maintain the bad things that could be going on in the server. 
