@@ -32,7 +32,7 @@ My prompt was designed to list some popular AI sites to write prompts on and to 
 # October 20, 2025
 | Name     | Class | Seat |
 | :------- | :---- | :--- |
-| Franklin | second      | 91A     |
+| Franklin | second     | 91A     |
 | Hardeep  | third      | 61F     |
 | Marla    | first      | 35B     |
 # October 27, 2025
@@ -55,3 +55,5 @@ I also used my phone to watch videos and edit videos, and I usally listen to vid
 Autcraft was made for the right to have a safe space on online games for the children that didnt have any safe place to go. The harm that could happen in a unmoderated online game are gonna be listed in the following. Bullying, Harrasment, 
 exclusion, child dangerment, inoppropriate actions, grooming and a lot more could potentially happen in these online game platforms. Autcraft design on making a safe community for the kids that need it was a genius idea and perfectly planned.
 The developers choices in the rules, moderation tools, reporting systems affect user experience by making it easier for them to maintain the bad things that could be going on in the server. 
+# January 20, 2026
+One way technology can help promote a fair and justice society is by allowing it to collect information on what are society is like and it can come up with a description on what to do. On any type of app that allows people to converse/communicate should monitor the people who are not being fair and people who aren't using justice against it to see what were doing wrong. This would create a pattern that the tech that we have can analyze whats going on and help us out. Then we can make a machine that should settle whats fair and how justice should be used properly and can decide it for us. Now that this is what could happen will be broadcasted to the world and convinse people that be fair and the use of justice is needed in this day and age of society.
